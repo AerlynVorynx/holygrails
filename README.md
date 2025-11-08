@@ -1,2 +1,2 @@
 # holygrails
-[find me](https://x.com/AerlynVprynx)
+[find me](https://x.com/AerlynVorynx)
